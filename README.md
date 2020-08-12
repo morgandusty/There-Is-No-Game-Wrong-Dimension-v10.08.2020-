@@ -4,5 +4,5 @@
 
 
 # ПАРОЛЬ: MorganDusty
-(АВТОР)
-[АВТОР](http://vk.com/dobrov.sergey)
+АВТОР В ВК:
+[КЛИКНИ](http://vk.com/dobrov.sergey)
