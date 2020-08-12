@@ -6,3 +6,5 @@
 # ПАРОЛЬ: MorganDusty
 АВТОР В ВК:
 [КЛИКНИ](http://vk.com/dobrov.sergey)
+СКАЧАТЬ:
+[КЛИКНИ](https://yadi.sk/d/9L9PzLslexL8fQ
