@@ -3,6 +3,6 @@
 
 
 
-#ПАРОЛЬ: MorganDusty
+# ПАРОЛЬ: MorganDusty
 (АВТОР)
-[example.com](http://vk.com/dobrov.sergey)
+[АВТОР](http://vk.com/dobrov.sergey)
